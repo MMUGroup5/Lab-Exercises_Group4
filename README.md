@@ -3,6 +3,7 @@ Lab Excerise:
 
 Meeting 01 - 30/05
 9:00pm - 10:00pm 
+<br>
 Meeting 02 - 4/06
 9:00pm -9:45pm
 
