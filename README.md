@@ -8,7 +8,7 @@ Meeting 02 - 4/06
 9:00pm -9:45pm
 <br>
 Meeting 03 - 6/06
-9:00pm -9:45pm
+10:00pm -11:45pm
 
 
 Microsoft Word:https://mmuedumy-my.sharepoint.com/:w:/r/personal/1231302444_student_mmu_edu_my/Documents/C%20CP6224_Group04.docx?d=wfd532a7cf58b4d6b9af952bab99c22c1&csf=1&web=1&e=230OI9
